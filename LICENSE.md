@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with custom NFT Wash Trading Bot for nft mint bot | auto-buy & gas-fee-estimation. Featuring auto-buy and gas-fee-estimation, it's the best choice
 
 
 
